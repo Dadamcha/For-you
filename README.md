@@ -1,7 +1,7 @@
 
 <div align="center">
 
-# 𝓕𝓸𝓻 𝓨𝓸𝓾 ♡
+# 𝐹𝑜𝑟 𝑌𝑜𝑢 ♡
 
 *𝑨 𝒍𝒊𝒕𝒕𝒍𝒆 𝒔𝒐𝒎𝒆𝒕𝒉𝒊𝒏𝒈, 𝒎𝒂𝒅𝒆 𝒋𝒖𝒔𝒕 𝒇𝒐𝒓 𝒚𝒐𝒖.*
 
@@ -62,7 +62,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 🌷 ───────── ♡ ───────── 🌷
 
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=42&duration=999999&pause=999999&color=F4B6C2&center=true&vCenter=true&width=400&lines=Gracy+%E2%99%A1" alt="Gracy ♡" />
+ 𝐻𝑒𝑦, 𝐺𝑟𝑎𝑐𝑦 ♡
 </div>
 
 </div>
@@ -70,7 +70,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 <br/>
 
 <div align="right">
-  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=28&duration=999999&pause=999999&color=FFFFFF&center=true&vCenter=true&width=300&lines=Forever+yours%2C;~+Damcha." alt="Forever yours, ~ Damcha." />
+ 𝐹𝑜𝑟𝑒𝑣𝑒𝑟 𝑦𝑜𝑢𝑟𝑠, ~𝐷𝑎𝑚𝑐ℎ𝑎.
 </div>
 
 <div align="center">

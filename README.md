@@ -3,11 +3,11 @@
 
 # 𝓕𝓸𝓻 𝓨𝓸𝓾 ♡
 
-*𝐴 𝑙𝑖𝑡𝑡𝑙𝑒 𝑠𝑜𝑚𝑒𝑡ℎ𝑖𝑛𝑔, 𝑚𝑎𝑑𝑒 𝑗𝑢𝑠𝑡 𝑓𝑜𝑟 𝑦𝑜𝑢.*
+*𝑨 𝒍𝒊𝒕𝒕𝒍𝒆 𝒔𝒐𝒎𝒆𝒕𝒉𝒊𝒏𝒈, 𝒎𝒂𝒅𝒆 𝒋𝒖𝒔𝒕 𝒇𝒐𝒓 𝒚𝒐𝒖.*
 
 🌷 ───────── ♡ ───────── 🌷
 
-<h2><span style="color: #F4B6C2;">𝓗𝓮𝔂, 𝓖𝓻𝓪𝓬𝔂 ♡</span></h2>
+<img src="https://readme-typing-svg.demolab.com?font=Georgia&size=28&duration=999999&pause=999999&color=F4B6C2&center=true&vCenter=true&width=450&lines=Hey%2C+Gracy+%E2%99%A1" alt="Hey, Gracy ♡" />
 
 </div>
 
@@ -21,7 +21,7 @@ It might just be a website to someone else, but I hope it feels a little differe
 
 ---
 
-## 𝒲𝒽𝓎 𝓉𝒽𝒾𝓈 𝓁𝒾𝓉𝓉𝓁𝑒 𝓦𝓮𝓫𝓼𝓲𝓽𝓮 ?
+## 𝑊ℎ𝑦 𝑇ℎ𝑖𝑠 𝐿𝑖𝑡𝑡𝑙𝑒 𝑊𝑒𝑏𝑠𝑖𝑡𝑒 ?
 
 Honestly, I just wanted to see you smile.
 
@@ -31,7 +31,9 @@ It's not about making something perfect. It's about making something that means 
 
 And this one is for you. ♡
 
-## 𝒥𝓊𝓈𝓉 𝓕𝓸𝓻 𝔂𝓸𝓾 ♡
+---
+
+## 𝐽𝑢𝑠𝑡 𝐹𝑜𝑟 𝑌𝑜𝑢 ♡
 
 There are things I might not always know how to say, and feelings that don't always fit into a text message.
 
@@ -45,7 +47,7 @@ Sometimes, simply being you is enough. 🌸
 
 ---
 
-## 𝒜 𝓁𝒾𝓉𝓉𝓁𝑒 𝓝𝓸𝓽𝓮 ♡
+## 𝐴 𝐿𝑖𝑡𝑡𝑙𝑒 𝑁𝑜𝑡𝑒 ♡
 
 This little website may not be the biggest gift in the world, but it's something I wanted to make myself.
 
@@ -59,7 +61,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 🌷 ───────── ♡ ───────── 🌷
 
-<h2 style="color: #F4B6C2;">𝓖𝓻𝓪𝓬𝔂 ♡</h2>
+<img src="https://readme-typing-svg.demolab.com?font=Georgia&size=32&duration=999999&pause=999999&color=F4B6C2&center=true&vCenter=true&width=400&lines=Gracy+%E2%99%A1" alt="Gracy ♡" />
 
 </div>
 
@@ -67,15 +69,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 <div align="right">
 
-<span style="color:#ffffff; font-family:cursive;">
-
-*𝓕𝓸𝓻𝓮𝓿𝓮𝓻 𝔂𝓸𝓾𝓻𝓼,*
-
-<br/>
-
-**~ 𝓓𝓪𝓶𝓬𝓱𝓪.**
-
-</span>
+<img src="https://readme-typing-svg.demolab.com?font=Georgia&size=20&duration=999999&pause=999999&color=FFFFFF&center=true&vCenter=true&width=300&lines=Forever+yours%2C;~+Damcha." alt="Forever yours, ~ Damcha." />
 
 </div>
 
@@ -83,6 +77,6 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 🌸 ───────── ♡ ───────── 🌸
 
-*𝓜𝓪𝓭𝓮 𝔀𝓲𝓽𝓱 𝓵𝓸𝓿𝓮, 𝓳𝓾𝓼𝓽 𝓯𝓸𝓻 𝔂𝓸𝓾.*
+*𝑴𝒂𝒅𝒆 𝒘𝒊𝒕𝒉 𝒍𝒐𝒗𝒆, 𝒋𝒖𝒔𝒕 𝒇𝒐𝒓 𝒚𝒐𝒖.*
 
 </div>

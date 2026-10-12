@@ -3,26 +3,14 @@
 
  # 𝐹𝑜𝑟 𝑌𝑜𝑢 ♡
 
-*A little something, made just for you.*
+𝐴 𝐿𝑖𝑡𝑡𝑙𝑒 𝑁𝑜𝑡𝑒
 
 🌷 ───────── ♡ ───────── 🌷
 
 </div>
 𝐻𝑒𝑦, 𝐺𝑟𝑎𝑐𝑦 ♡
 
-
-I hope life is gentle with you, even on the days when things don't go as planned.
-
-May you always find little reasons to smile, peaceful moments when life feels overwhelming, and happiness in the simplest things.
-
-You deserve the kind of happiness that comes naturally, the kind of peace that makes your heart feel light, and the kind of smile that stays a little longer.
-
-Whenever life gets difficult, I hope you remember to be kind to yourself, take a little rest, and never forget that brighter days are worth looking forward to.
-
-And on ordinary days, I hope something unexpected makes you laugh, the little things warm your heart, and life gives you reasons to smile without even trying. ❤️
-
-Take care, stay happy, and never lose that beautiful light within you.
-
+𝐼 ℎ𝑜𝑝𝑒 𝑙𝑖𝑓𝑒 𝑖𝑠 𝑔𝑒𝑛𝑡𝑙𝑒 𝑤𝑖𝑡ℎ 𝑦𝑜𝑢, 𝑒𝑣𝑒𝑛 𝑜𝑛 𝑡ℎ𝑒 𝑑𝑎𝑦𝑠 𝑤ℎ𝑒𝑛 𝑡ℎ𝑖𝑛𝑔𝑠 𝑑𝑜𝑛'𝑡 𝑔𝑜 𝑎𝑠 𝑝𝑙𝑎𝑛𝑛𝑒𝑑.  𝑀𝑎𝑦 𝑦𝑜𝑢 𝑎𝑙𝑤𝑎𝑦𝑠 𝑓𝑖𝑛𝑑 𝑙𝑖𝑡𝑡𝑙𝑒 𝑟𝑒𝑎𝑠𝑜𝑛𝑠 𝑡𝑜 𝑠𝑚𝑖𝑙𝑒, 𝑝𝑒𝑎𝑐𝑒𝑓𝑢𝑙 𝑚𝑜𝑚𝑒𝑛𝑡𝑠 𝑤ℎ𝑒𝑛 𝑙𝑖𝑓𝑒 𝑓𝑒𝑒𝑙𝑠 𝑜𝑣𝑒𝑟𝑤ℎ𝑒𝑙𝑚𝑖𝑛𝑔, 𝑎𝑛𝑑 ℎ𝑎𝑝𝑝𝑖𝑛𝑒𝑠𝑠 𝑖𝑛 𝑡ℎ𝑒 𝑠𝑖𝑚𝑝𝑙𝑒𝑠𝑡 𝑡ℎ𝑖𝑛𝑔𝑠.  𝑌𝑜𝑢 𝑑𝑒𝑠𝑒𝑟𝑣𝑒 𝑡ℎ𝑒 𝑘𝑖𝑛𝑑 𝑜𝑓 ℎ𝑎𝑝𝑝𝑖𝑛𝑒𝑠𝑠 𝑡ℎ𝑎𝑡 𝑐𝑜𝑚𝑒𝑠 𝑛𝑎𝑡𝑢𝑟𝑎𝑙𝑙𝑦, 𝑡ℎ𝑒 𝑘𝑖𝑛𝑑 𝑜𝑓 𝑝𝑒𝑎𝑐𝑒 𝑡ℎ𝑎𝑡 𝑚𝑎𝑘𝑒𝑠 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡 𝑓𝑒𝑒𝑙 𝑙𝑖𝑔ℎ𝑡, 𝑎𝑛𝑑 𝑡ℎ𝑒 𝑘𝑖𝑛𝑑 𝑜𝑓 𝑠𝑚𝑖𝑙𝑒 𝑡ℎ𝑎𝑡 𝑠𝑡𝑎𝑦𝑠 𝑎 𝑙𝑖𝑡𝑡𝑙𝑒 𝑙𝑜𝑛𝑔𝑒𝑟.  𝑊ℎ𝑒𝑛𝑒𝑣𝑒𝑟 𝑙𝑖𝑓𝑒 𝑔𝑒𝑡𝑠 𝑑𝑖𝑓𝑓𝑖𝑐𝑢𝑙𝑡, 𝐼 ℎ𝑜𝑝𝑒 𝑦𝑜𝑢 𝑟𝑒𝑚𝑒𝑚𝑏𝑒𝑟 𝑡𝑜 𝑏𝑒 𝑘𝑖𝑛𝑑 𝑡𝑜 𝑦𝑜𝑢𝑟𝑠𝑒𝑙𝑓, 𝑡𝑎𝑘𝑒 𝑎 𝑙𝑖𝑡𝑡𝑙𝑒 𝑟𝑒𝑠𝑡, 𝑎𝑛𝑑 𝑛𝑒𝑣𝑒𝑟 𝑓𝑜𝑟𝑔𝑒𝑡 𝑡ℎ𝑎𝑡 𝑏𝑟𝑖𝑔ℎ𝑡𝑒𝑟 𝑑𝑎𝑦𝑠 𝑎𝑟𝑒 𝑤𝑜𝑟𝑡ℎ 𝑙𝑜𝑜𝑘𝑖𝑛𝑔 𝑓𝑜𝑟𝑤𝑎𝑟𝑑 𝑡𝑜.  𝐴𝑛𝑑 𝑜𝑛 𝑜𝑟𝑑𝑖𝑛𝑎𝑟𝑦 𝑑𝑎𝑦𝑠, 𝐼 ℎ𝑜𝑝𝑒 𝑠𝑜𝑚𝑒𝑡ℎ𝑖𝑛𝑔 𝑢𝑛𝑒𝑥𝑝𝑒𝑐𝑡𝑒𝑑 𝑚𝑎𝑘𝑒𝑠 𝑦𝑜𝑢 𝑙𝑎𝑢𝑔ℎ, 𝑡ℎ𝑒 𝑙𝑖𝑡𝑡𝑙𝑒 𝑡ℎ𝑖𝑛𝑔𝑠 𝑤𝑎𝑟𝑚 𝑦𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡, 𝑎𝑛𝑑 𝑙𝑖𝑓𝑒 𝑔𝑖𝑣𝑒𝑠 𝑦𝑜𝑢 𝑟𝑒𝑎𝑠𝑜𝑛𝑠 𝑡𝑜 𝑠𝑚𝑖𝑙𝑒 𝑤𝑖𝑡ℎ𝑜𝑢𝑡 𝑒𝑣𝑒𝑛 𝑡𝑟𝑦𝑖𝑛𝑔. ❤️  𝑇𝑎𝑘𝑒 𝑐𝑎𝑟𝑒, 𝑠𝑡𝑎𝑦 ℎ𝑎𝑝𝑝𝑦, 𝑎𝑛𝑑 𝑛𝑒𝑣𝑒𝑟 𝑙𝑜𝑠𝑒 𝑡ℎ𝑎𝑡 𝑏𝑒𝑎𝑢𝑡𝑖𝑓𝑢𝑙 𝑙𝑖𝑔ℎ𝑡 𝑤𝑖𝑡ℎ𝑖𝑛 𝑦𝑜𝑢.
 <div align="center">
 
 🌸 ───────── ♡ ───────── 🌸
@@ -31,7 +19,7 @@ Take care, stay happy, and never lose that beautiful light within you.
 
 <div align="center">
 
-Forever yours,  
-~ 𝐷𝑎𝑚𝑐ℎ𝑎.
+𝐹𝑜𝑟𝑒𝑣𝑒𝑟 𝑦𝑜𝑢𝑟𝑠,
+~𝐷𝑎𝑚𝑐ℎ𝑎.
 
 </div>

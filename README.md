@@ -5,7 +5,7 @@
 
 *𝐴 𝑙𝑖𝑡𝑡𝑙𝑒 𝑠𝑜𝑚𝑒𝑡ℎ𝑖𝑛𝑔, 𝑚𝑎𝑑𝑒 𝑗𝑢𝑠𝑡 𝑓𝑜𝑟 𝑦𝑜𝑢.*
 
-🌷 ─────────── ♡ ─────────── 🌷
+🌷 ────────── ♡ ────────── 🌷
 
 <h2><span style="color:#ff69b4;">𝓗𝓮𝔂, 𝓖𝓻𝓪𝓬𝔂 ♡</span></h2>
 
@@ -57,7 +57,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 <div align="center">
 
-🌷 ─────────── ♡ ─────────── 🌷
+🌷 ────────── ♡ ────────── 🌷
 
 <h2 style="color:#F4B6C2;">𝓖𝓻𝓪𝓬𝔂 ♡</h2>
 
@@ -81,7 +81,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 <div align="center">
 
-🌸 ─────────── ♡ ─────────── 🌸
+🌸 ────────── ♡ ────────── 🌸
 
 *𝓜𝓪𝓭𝓮 𝔀𝓲𝓽𝓱 𝓵𝓸𝓿𝓮, 𝓳𝓾𝓼𝓽 𝓯𝓸𝓻 𝔂𝓸𝓾.*
 

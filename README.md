@@ -9,6 +9,7 @@
 
 </div>
 𝐻𝑒𝑦, 𝐺𝑟𝑎𝑐𝑦 ♡
+
 I hope life is gentle with you, even on the days when things don't go as planned.
 
 May you always find little reasons to smile, peaceful moments when life feels overwhelming, and happiness in the simplest things.

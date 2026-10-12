@@ -61,16 +61,16 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 🌷 ───────── ♡ ───────── 🌷
 
-<img src="https://readme-typing-svg.demolab.com?font=Georgia&size=32&duration=999999&pause=999999&color=F4B6C2&center=true&vCenter=true&width=400&lines=Gracy+%E2%99%A1" alt="Gracy ♡" />
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=42&duration=999999&pause=999999&color=F4B6C2&center=true&vCenter=true&width=400&lines=Gracy+%E2%99%A1" alt="Gracy ♡" />
+</div>
 
 </div>
 
 <br/>
 
 <div align="right">
-
-<img src="https://readme-typing-svg.demolab.com?font=Georgia&size=20&duration=999999&pause=999999&color=FFFFFF&center=true&vCenter=true&width=300&lines=Forever+yours%2C;~+Damcha." alt="Forever yours, ~ Damcha." />
-
+  <img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&size=28&duration=999999&pause=999999&color=FFFFFF&center=true&vCenter=true&width=300&lines=Forever+yours%2C;~+Damcha." alt="Forever yours, ~ Damcha." />
 </div>
 
 <div align="center">

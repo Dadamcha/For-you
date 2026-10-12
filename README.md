@@ -7,7 +7,7 @@
 
 🌷 ───────── ♡ ───────── 🌷
 
-<h2><span style="color:#ff69b4;">𝓗𝓮𝔂, 𝓖𝓻𝓪𝓬𝔂 ♡</span></h2>
+<h2><span style="color: #F4B6C2;">𝓗𝓮𝔂, 𝓖𝓻𝓪𝓬𝔂 ♡</span></h2>
 
 </div>
 
@@ -59,7 +59,7 @@ And whenever you see it, I hope you remember that someone took the time to make 
 
 🌷 ───────── ♡ ───────── 🌷
 
-<h2 style="color:#F4B6C2;">𝓖𝓻𝓪𝓬𝔂 ♡</h2>
+<h2 style="color: #F4B6C2;">𝓖𝓻𝓪𝓬𝔂 ♡</h2>
 
 </div>
 

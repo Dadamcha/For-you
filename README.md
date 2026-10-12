@@ -1,9 +1,10 @@
 
 <div align="center">
 
- * 𝐹𝑜𝑟 𝑌𝑜𝑢 ♡
+ # 𝐹𝑜𝑟 𝑌𝑜𝑢 ♡
 
 *A little something, made just for you.*
+𝐻𝑒𝑦, 𝐺𝑟𝑎𝑐𝑦 ♡
 
 🌷 ───────── ♡ ───────── 🌷
 
@@ -30,6 +31,6 @@ Take care, stay happy, and never lose that beautiful light within you.
 <div align="right">
 
 Forever yours,  
-~𝐷𝑎𝑚𝑐ℎ𝑎.
+**~ 𝐷𝑎𝑚𝑐ℎ𝑎.**
 
 </div>
